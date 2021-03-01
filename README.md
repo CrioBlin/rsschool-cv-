@@ -1,1 +1,1 @@
-https://CrioBlin.github.io/rsschool-cv/cv
+https://CrioBlin.github.io/rsschool-cv
